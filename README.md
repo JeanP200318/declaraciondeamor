@@ -1,1 +1,1 @@
-# declaraciondeamor
+# declaracion
